@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @geetkaur-7
-- 👀 I’m interested in filmmaking, story-tellings, news, and all. 
-- 🌱 I’m currently learning to learn. 
-- 💞️ I’m looking to collaborate on animation. 
 - 📫 How to reach me: My Gmail- thatsogeet@gmail.com
 
 <!---
